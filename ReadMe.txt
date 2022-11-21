@@ -1,0 +1,1 @@
+Os integrantes da dupla é Lucas Jordão de Oliveira e Gabriel Medeiros Ernandes
